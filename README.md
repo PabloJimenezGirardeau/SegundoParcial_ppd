@@ -1,1 +1,1 @@
-# Ejercicio Práctico - SegundoParcial_ppd
+# Ejercicio Práctico - Segundo Parcial ppd
